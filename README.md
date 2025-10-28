@@ -20,10 +20,10 @@ my playlist on spot : https://open.spotify.com/playlist/1ts9gwddKxpqTTtu9UePkD?s
 <br />
 <br />
 ##   fav games
-<br />
 overwatch, valorant, mha oj2/ui/ur, guilty gear, muse dash, roblos, mc
 <br />
 <br />
 ##   ships
+<br />
 multiship; krbk, dkbk no switch r my mains
 <!--
