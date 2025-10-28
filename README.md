@@ -19,11 +19,11 @@ kpop (cortis, le sserafim, etc) granblue, bloons, muse dash, supernatural, jjk, 
 my playlist on spot : https://open.spotify.com/playlist/1ts9gwddKxpqTTtu9UePkD?si=42c99b3782494a3a
 <br />
 <br />
-fav games
+##   fav games
 <br />
 overwatch, valorant, mha oj2/ui/ur, guilty gear, muse dash, roblos, mc
 <br />
 <br />
-ships
+##   ships
 multiship; krbk, dkbk no switch r my mains
 <!--
