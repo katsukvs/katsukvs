@@ -24,5 +24,5 @@ overwatch, valorant, mha oj2/ui/ur, guilty gear, muse dash, roblos, mc
 <br />
 <br />
 ##   ships
-<br /> multiship; krbk, dkbk no switch r my mains
+multiship; krbk, dkbk no switch r my mains
 <!--
